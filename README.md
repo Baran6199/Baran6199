@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Baran6199
+- 👋 Hi, I’m @Baran
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning network
 - 💞️ I’m looking to collaborate on ...
